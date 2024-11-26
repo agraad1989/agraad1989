@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning alawys Learning.
 - 💞️ I’m looking to collaborate on international and multinational companies.
 - 📫 How to reach me? My email address "agraad1989@gmail.com"
-- 😄 Pronouns: ...
+- 😄 Check my www.linkedin.com/in/agraad1989
 - ⚡ Fun fact: ...
 
 <!---
